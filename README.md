@@ -1,2 +1,2 @@
-# latihan membuat branch baru 
-seru bgt belajar coding 
+# belajar coding nih 2 
+sana sana 
